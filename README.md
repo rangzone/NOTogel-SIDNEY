@@ -10,4 +10,4 @@ Fitur NOtogel SDY:
 - Prediksi dari pakar Togel sidney
 - Tabel Shio Togel Terbaru
 
-<a href="https://play.google.com/store/apps/details?id=rz.rumusprediksi.togelsidney" target="_blank"><img alt="Download aplikasi rumus prediksi togel sidney APK Android app" src="https://i.ibb.co/nnQBHcj/google-play-badge.png" width="323" height="125"></a>
+<a href="https://play.google.com/store/apps/details?id=sdbw.prediksitogel.app" target="_blank"><img alt="Download aplikasi rumus prediksi togel sidney APK Android app" src="https://i.ibb.co/nnQBHcj/google-play-badge.png" width="323" height="125"></a>
